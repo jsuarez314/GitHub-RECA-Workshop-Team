@@ -1,0 +1,2 @@
+# GitHub-RECA-Workshop-Team
+I´m Felipe, a physics student in the University of Nariño in Pasto, Colombia. Now, i'm writing my dissertation work whose title is "Hamilton-Jacobi formulation for Proca equation" witch is related with classical field theory. Besides that, my academic interest are related to particle physics and cosmology.
