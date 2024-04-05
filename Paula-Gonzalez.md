@@ -1,0 +1,1 @@
+I am Paula González, physicist and master's student in Sciences - Astronomy at the Universidad Nacional de Colombia, where I am a teaching assistant for the introduction to astronomy course. I am part of the solar astrophysics research group (GoSA) of the National Astronomical Observatory
