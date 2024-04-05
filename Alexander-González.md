@@ -1,0 +1,2 @@
+I'm **Alexander**, an undergraduate student of astronomy at the Universidad de Antioquia in Medellin, Colombia. My main research interests lie in the spectroscopy of chemically peculiar stars. I am currently a member of the **FACom** research group of the Faculty of Exact and Natural Sciences of the UdeA. In addition, as part of my outreach activities, I am part of the founding group of 'Hermes, divulgadores de la ciencia'.
+
