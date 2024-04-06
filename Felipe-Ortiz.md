@@ -1,0 +1,2 @@
+# GitHub-RECA-Workshop-Team
+Hola, soy Felipe, estudiante de geología (con énfasis en ciencias planetarias) de la UIS, hago parte del grupo de astronomía Halley y del nodo de RECA Educación. Actualmente, estoy desarrollando mi trabajo de grado en la detección de gases volcánicos en exoplanetas rocosos. 
