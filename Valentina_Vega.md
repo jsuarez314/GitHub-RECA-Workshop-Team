@@ -1,0 +1,1 @@
+Hello, my name is Valentina, currently pursuing a Bachelor's degree in Physics. My favourite areas of research are planetary sciences and astrophysics , hopefully next year i will be doing a Master in one of these. 
